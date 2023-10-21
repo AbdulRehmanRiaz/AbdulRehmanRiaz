@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Javascript, Flutter**
 
-- 📫 How to reach me **abdulrehmanrk@gmail.com**
+- 📫 Reach me through **abdulrehmanrk@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1AblXnj1h2uasKfViFNJiuZJy-Lnm3lJA/view?usp=share_link](https://drive.google.com/file/d/1AblXnj1h2uasKfViFNJiuZJy-Lnm3lJA/view?usp=share_link)
 
