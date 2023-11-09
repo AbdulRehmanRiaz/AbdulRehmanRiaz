@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1AblXnj1h2uasKfViFNJiuZJy-Lnm3lJA/view?usp=share_link](https://drive.google.com/file/d/1AblXnj1h2uasKfViFNJiuZJy-Lnm3lJA/view?usp=share_link)
 
-- ⚡ Fun fact **I am a good cricter**
+- ⚡ Fun fact **I am a good cricketer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
